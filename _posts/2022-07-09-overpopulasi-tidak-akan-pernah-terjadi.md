@@ -11,7 +11,7 @@ Nihilisme semakin populer.
 
 rick & morty. bojack horseman. everything everywhere all at once. jujutsu kaisen. chainsaw man. kaguya sama. spyxfamily.
 
-Banyak kaya gituan, makin self aware, terlalu cepat semuanya jadi pemikir.
+Banyak kaya gituan, makin self aware self conscious, terlalu cepat semuanya jadi pemikir.
 
 Para hikkikomori adalah filsuf.
 
